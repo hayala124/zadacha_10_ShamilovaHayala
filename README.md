@@ -1,0 +1,1 @@
+# zadacha_10_ShamilovaHayala
